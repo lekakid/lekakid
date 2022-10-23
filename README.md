@@ -1,1 +1,1 @@
-![Woah!](https://github.com/lekakid/lekakid/blob/master/screenshot-8.png)
+![Woah!](https://github.com/lekakid/lekakid/blob/master/screenshot-7.png)
